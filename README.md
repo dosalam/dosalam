@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @dosalam
-- 👀 I’m interested in Crypto #btc Cinema
+- 👀 I’m interested in Crypto #btc/Cinema/netflix
 - 🌱 I’m currently learning ATU
 - 💞️ I’m looking to collaborate on Netflix
-- 📫 How to reach me 
+- 📫 How to reach me/ My X @dustin_alish
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
